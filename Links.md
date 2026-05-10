@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-10 13:44 (IR Time)
+- 📥 [ماز دهم تجربی ۱۷ مهر.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/%D9%85%D8%A7%D8%B2%20%D8%AF%D9%87%D9%85%20%D8%AA%D8%AC%D8%B1%D8%A8%DB%8C%20%DB%B1%DB%B7%20%D9%85%D9%87%D8%B1.zip) `5.26 MB`
+
 ### 📅 2026-05-10 13:13 (IR Time)
 - 📥 [ماز ققنوس دوازدهم تجربی 23 تیر.pdf](https://github.com/Oscar-hub1/uploadme/raw/main/dl/%D9%85%D8%A7%D8%B2%20%D9%82%D9%82%D9%86%D9%88%D8%B3%20%D8%AF%D9%88%D8%A7%D8%B2%D8%AF%D9%87%D9%85%20%D8%AA%D8%AC%D8%B1%D8%A8%DB%8C%2023%20%D8%AA%DB%8C%D8%B1.pdf) `4.69 MB`
 
