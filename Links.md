@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-11 21:10 (IR Time)
+- 📥 [10 فلاح.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/10%20%D9%81%D9%84%D8%A7%D8%AD.zip) `3.62 MB`
+
 ### 📅 2026-05-11 21:08 (IR Time)
 - 📥 [9 فلاح.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/9%20%D9%81%D9%84%D8%A7%D8%AD.zip) `3.18 MB`
 
