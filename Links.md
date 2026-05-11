@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-11 16:58 (IR Time)
+- 📥 [جزوه جامع.pdf](https://github.com/Oscar-hub1/uploadme/raw/main/dl/%D8%AC%D8%B2%D9%88%D9%87%20%D8%AC%D8%A7%D9%85%D8%B9.pdf) `14.02 MB`
+
 ### 📅 2026-05-11 16:10 (IR Time)
 - 📥 [جزوه_شماره_2_عربی_عمومی_دوازدهم_فلاح.pdf](https://github.com/Oscar-hub1/uploadme/raw/main/dl/%D8%AC%D8%B2%D9%88%D9%87_%D8%B4%D9%85%D8%A7%D8%B1%D9%87_2_%D8%B9%D8%B1%D8%A8%DB%8C_%D8%B9%D9%85%D9%88%D9%85%DB%8C_%D8%AF%D9%88%D8%A7%D8%B2%D8%AF%D9%87%D9%85_%D9%81%D9%84%D8%A7%D8%AD.pdf) `15.08 MB`
 
