@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-11 21:20 (IR Time)
+- 📥 [جزوه_تکمیل_شده_جلسه_19_عربی_عمومی_دوازدهم_فلاح.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/%D8%AC%D8%B2%D9%88%D9%87_%D8%AA%DA%A9%D9%85%DB%8C%D9%84_%D8%B4%D8%AF%D9%87_%D8%AC%D9%84%D8%B3%D9%87_19_%D8%B9%D8%B1%D8%A8%DB%8C_%D8%B9%D9%85%D9%88%D9%85%DB%8C_%D8%AF%D9%88%D8%A7%D8%B2%D8%AF%D9%87%D9%85_%D9%81%D9%84%D8%A7%D8%AD.zip) `12.04 MB`
+
 ### 📅 2026-05-11 21:19 (IR Time)
 - 📥 [جزوه تکمیل شده عربی فلاح.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/%D8%AC%D8%B2%D9%88%D9%87%20%D8%AA%DA%A9%D9%85%DB%8C%D9%84%20%D8%B4%D8%AF%D9%87%20%D8%B9%D8%B1%D8%A8%DB%8C%20%D9%81%D9%84%D8%A7%D8%AD.zip) `9.99 MB`
 
