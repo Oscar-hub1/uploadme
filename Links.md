@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-11 15:41 (IR Time)
+- 📥 [جزوه تکميل شده جلسه 1.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/%D8%AC%D8%B2%D9%88%D9%87%20%D8%AA%DA%A9%D9%85%D9%8A%D9%84%20%D8%B4%D8%AF%D9%87%20%D8%AC%D9%84%D8%B3%D9%87%201.zip) `1.50 MB`
+
 ### 📅 2026-05-11 15:09 (IR Time)
 - 📥 [23.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/23.zip) `41.38 MB`
 
