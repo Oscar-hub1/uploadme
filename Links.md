@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-11 14:17 (IR Time)
+- 📥 [8.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/8.zip) `33.54 MB`
+
 ### 📅 2026-05-11 14:16 (IR Time)
 - 📥 [7.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/7.zip) `32.46 MB`
 
