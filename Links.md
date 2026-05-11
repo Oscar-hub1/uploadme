@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-11 14:10 (IR Time)
+- 📥 [1-yekta.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/1-yekta.zip) `10.68 MB`
+
 ### 📅 2026-05-11 13:47 (IR Time)
 - 📥 [mix.video.zip.001](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.zip.001) `90.00 MB`
 - 📥 [mix.video.zip.002](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.zip.002) `90.00 MB`
