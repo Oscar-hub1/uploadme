@@ -1,5 +1,8 @@
 ## 🔗 Direct Download Links
 
+### 📅 2026-05-11 15:55 (IR Time)
+- 📥 [جزوه تکمیل شده جلسه 8.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/%D8%AC%D8%B2%D9%88%D9%87%20%D8%AA%DA%A9%D9%85%DB%8C%D9%84%20%D8%B4%D8%AF%D9%87%20%D8%AC%D9%84%D8%B3%D9%87%208.zip) `2.87 MB`
+
 ### 📅 2026-05-11 15:54 (IR Time)
 - 📥 [Falah-Saliane1405-Davazdahom-E07.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/Falah-Saliane1405-Davazdahom-E07.zip) `3.01 MB`
 
