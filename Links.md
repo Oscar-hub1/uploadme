@@ -1,6 +1,17 @@
 ## 🔗 Direct Download Links
 > Click on any link below to start downloading directly.<br><br/>
 
+### 📅 2026-05-13 21:03 (IR Time)
+- 📥 [mix.video.z01](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.z01) `95.00 MB`
+- 📥 [mix.video.z02](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.z02) `95.00 MB`
+- 📥 [mix.video.z03](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.z03) `95.00 MB`
+- 📥 [mix.video.z04](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.z04) `95.00 MB`
+- 📥 [mix.video.z05](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.z05) `95.00 MB`
+- 📥 [mix.video.z06](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.z06) `95.00 MB`
+- 📥 [mix.video.z07](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.z07) `95.00 MB`
+- 📥 [mix.video.z08](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.z08) `95.00 MB`
+- 🗜️ [mix.video.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.zip) `75.48 MB`
+
 ### 📅 2026-05-13 11:39 (IR Time)
 - 📥 [mix.video.z01](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.z01) `95.00 MB`
 - 📥 [mix.video.z02](https://github.com/Oscar-hub1/uploadme/raw/main/dl/mix.video.z02) `95.00 MB`
