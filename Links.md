@@ -1,6 +1,9 @@
 ## 🔗 Direct Download Links
 > Click on any link below to start downloading directly.<br><br/>
 
+### 📅 2026-05-14 19:26 (IR Time)
+- 🗜️ [Tamland_CompBooklet_2025-01-11-14-47-22_RGit.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/Tamland_CompBooklet_2025-01-11-14-47-22_RGit.zip) `9.69 MB`
+
 ### 📅 2026-05-14 14:54 (IR Time)
 - 🗜️ [4_RGit.zip](https://github.com/Oscar-hub1/uploadme/raw/main/dl/4_RGit.zip) `8.10 MB`
 
